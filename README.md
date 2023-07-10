@@ -1,1 +1,0 @@
-# aderizkyfauzy.github.oi
